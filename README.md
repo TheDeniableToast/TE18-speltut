@@ -1,3 +1,3 @@
 # TE18-speltut
 
-Hej juns
+Hej juns det är dags för Kajs pyjamasparty
